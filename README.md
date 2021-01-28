@@ -15,6 +15,6 @@ Here are some ideas to get you started:
 - 💬 Feel free to contact me if you wanna discuss(or argue) about any technology.:wink:
 - 📫 You can reach me via my email,I will reply to your email even when I am sleeping. :sleeping:
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: I solely exist for coffee and code.:dizzy_face:
+- ⚡ Fun fact: I solely exist for IceCream and Code.:dizzy_face:
 
 
