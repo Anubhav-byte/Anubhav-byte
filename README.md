@@ -1,5 +1,5 @@
-## Hi there 👋, I am Anubhav Purohit. :grin:
-Student :student: Developer :computer: Connoisseur of IceCream :icecream:
+## Hi there 👋, I am Anubhav Purohit. 😁
+Student 👨‍🎓 Developer 💻 Connoisseur of IceCream 🍦🥶
 
 
 
